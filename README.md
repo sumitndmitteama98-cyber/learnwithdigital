@@ -133,5 +133,6 @@ AI is undoubtedly changing digital marketing by making many tasks faster, suppor
 Rather than viewing AI and human marketers as competitors, businesses can combine their strengths. AI can assist with repetitive tasks and research, while humans provide direction, creativity, judgment, and accountability.
 
 Ultimately, the digital marketers who learn to adapt and use AI responsibly may be better prepared for the industry's future.
+for more info visit : learnwithdigital.info
 
 **Now I would love to hear your opinion: Do you think AI will eventually replace most digital marketers, or will human creativity and strategic thinking remain essential? Share your thoughts and reasons in the comments.**
